@@ -1,6 +1,6 @@
 # The-principle
 
-doing better every day
+doing better every day /r
 doing with intensity
 doing with focus
 take [[actions]] toward [[Goals]]
